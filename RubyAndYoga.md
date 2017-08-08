@@ -14,8 +14,7 @@ A yogi is a person who practices yoga.
 Yoga refers to a lot of things.  Most people associate yoga with a set of physical exercises and postures emphasising strength, flexibility, balance 
 and usually with an element of eastern spirituality thrown in.
 
-Yoga is also a word that has been used to describe many spiritual and mental practices within many religions - especially Hinduism 
-- going back to times before the common era.  Meditation is a key common theme.
+Yoga is also a word that has been used to describe many spiritual and mental practices within many religions - mainly as a school within Hinduism - going back to times before the common era.  Meditation is a key common theme.
 
 It is unclear to me how long the association between the physical practice of yoga - meaning postures - also known as Asana's - has really been around for.
 Common belief is that yogi's who wanted to meditate better trained their body through postures to be ready to undertake long meditation sessions.  However,

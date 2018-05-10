@@ -3,10 +3,10 @@ What my Mum Taught me about Women
 
 Here is everything you need to know about women.  It was taught to me by one of my favourite women - my mum:
 
-	• Always compliment a woman on her new hairdo.   (Even if it isn't that good.)
-	• Always compliment a woman on her new dress.
-	• Women really like a man with a good smile.  It can significantly increase a man's attractiveness.   Rafael Nadal is a case in point.
-	• Never mentally undress a woman.
+• Always compliment a woman on her new hairdo.   (Even if it isn't that good.)
+• Always compliment a woman on her new dress.
+• Women really like a man with a good smile.  It can significantly increase a man's attractiveness.   Rafael Nadal is a case in point.
+• Never mentally undress a woman.
 
 The first three are straightforward but lost on most men I suspect.   The last is worth commenting on and also lost on many men.
 
